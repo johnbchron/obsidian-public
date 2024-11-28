@@ -37,8 +37,6 @@
 	- Lessons
 		- The Lord delights in a thankful heart more than in sacrifices. ([Psalm 51:16-17](https://www.bible.com/bible/116/PSA.51.16-17))
 		- When a humble person sees the Lord at work, their response is to thank the Lord. ([Isaiah 12:4](https://www.bible.com/bible/116/ISA.12.4))
-- [Leviticus 7:11-13](https://www.bible.com/bible/116/LEV.7.11-13)
-- [Leviticus 22:29](https://www.bible.com/bible/116/LEV.22.29)
 - [2 Chronicles 29:31](https://www.bible.com/bible/116/2CH.29.31)
 	- Context
 		- Hezekiah was crowned king and the first thing he did was to repair and reopen the temple. After he reopened it, he rededicated it and had the people offer a sin offering, and the Levites worshiped before the Lord. Then he had them offer thanksgiving offerings.
@@ -109,3 +107,17 @@
 - [Psalm 147:7-9](https://www.bible.com/bible/116/PSA.147.7-9)
 	- Lessons
 		- Praise the Lord for His provision! He causes the earth to live and bear fruit, and provides for all its animals. Surely He will also provide for you. ([Matthew 6:26](https://www.bible.com/bible/116/MAT.6.26))
+
+# Main Takeaways
+- The Lord delights in a thankful heart more than sacrifices.
+- Seeing the work of the Lord produces thanksgiving in the hearts of the humble.
+- Thanking the Lord is a spiritual sacrifice.
+- We should joyfully give thanks when we reconcile with the Lord or when we dedicate something.
+- Thanksgiving is an overflow of the heart when we witness His goodness.
+- Thanksgiving and praise prepare our hearts to meet with the Lord.
+- Thanksgiving and honor belong to our God.
+- Thanksgiving lifts our spiritual eyes to gaze on Him, and rights our perspective.
+- When things are as He designed, we can't help but thank Him.
+- Material sacrifices result from joy and thanksgiving.
+- We are made to thank and praise our God.
+- Thanksgiving gives Him glory.
