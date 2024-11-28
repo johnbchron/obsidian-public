@@ -1,0 +1,111 @@
+# Verses Mentioning Thanksgiving
+- "Then I will praise God’s name with singing, and I will honor him with thanksgiving. For this will please the Lord more than sacrificing cattle, more than presenting a bull with its horns and hooves. The humble will see their God at work and be glad. Let all who seek God’s help be encouraged. For the Lord hears the cries of the needy; he does not despise his imprisoned people." [Psalm 69:30](https://www.bible.com/bible/116/PSA.69.30)
+- "These are the instructions regarding the different kinds of peace offerings that may be presented to the Lord. If you present your peace offering as an expression of thanksgiving, the usual animal sacrifice must be accompanied by various kinds of bread made without yeast—thin cakes mixed with olive oil, wafers spread with oil, and cakes made of choice flour mixed with olive oil. This peace offering of thanksgiving must also be accompanied by loaves of bread made with yeast." [Leviticus 7:11-13](https://www.bible.com/bible/116/LEV.7.11-13)
+- "When you bring a thanksgiving offering to the Lord, sacrifice it properly so you will be accepted." [Leviticus 22:29](https://www.bible.com/bible/116/LEV.22.29)
+- "Then Hezekiah declared, “Now that you have consecrated yourselves to the Lord, bring your sacrifices and thanksgiving offerings to the Temple of the Lord.” So the people brought their sacrifices and thanksgiving offerings, and all whose hearts were willing brought burnt offerings, too." [2 Chronicles 29:31](https://www.bible.com/bible/116/2CH.29.31)
+- "Enter his gates with thanksgiving; go into his courts with praise. Give thanks to him and praise his name." [Psalm 100:4](https://www.bible.com/bible/116/PSA.100.4)
+- "On that day David gave to Asaph and his fellow Levites this song of thanksgiving to the Lord:" [1 Chronicles 16:7](https://www.bible.com/bible/116/1CH.16.7)
+- "They sang, “Amen! Blessing and glory and wisdom and thanksgiving and honor and power and strength belong to our God forever and ever! Amen.”" [Revelation 7:12](https://www.bible.com/bible/116/REV.7.12)
+- "There will be joy and songs of thanksgiving, and I will multiply my people, not diminish them; I will honor them, not despise them." [Jeremiah 30:19](https://www.bible.com/bible/116/JER.30.19)
+- "The Levites who returned with them were Jeshua, Binnui, Kadmiel, Sherebiah, Judah, and Mattaniah, who with his associates was in charge of the songs of thanksgiving." [Nehemiah 12:8](https://www.bible.com/bible/116/NEH.12.8)
+- "The custom of having choir directors to lead the choirs in hymns of praise and thanksgiving to God began long ago in the days of David and Asaph." [Nehemiah 12:46](https://www.bible.com/bible/116/NEH.12.46)
+- "The Lord is my strength and shield. I trust him with all my heart. He helps me, and my heart is filled with joy. I burst out in songs of thanksgiving." [Psalm 28:7](https://www.bible.com/bible/116/PSA.28.7)
+- "All of this is for your benefit. And as God’s grace reaches more and more people, there will be great thanksgiving, and God will receive more and more glory." [2 Corinthians 4:15](https://www.bible.com/bible/116/2CO.4.15)
+- "Then he restored the altar of the Lord and sacrificed peace offerings and thanksgiving offerings on it. He also encouraged the people of Judah to worship the Lord, the God of Israel." [2 Chronicles 33:16](https://www.bible.com/bible/116/2CH.33.16)
+- "Also Mattaniah son of Mica, son of Zabdi, a descendant of Asaph, who led in thanksgiving and prayer. Also Bakbukiah, who was Mattaniah’s assistant, and Abda son of Shammua, son of Galal, son of Jeduthun." [Nehemiah 11:17](https://www.bible.com/bible/116/NEH.11.17)
+- "The Lord will comfort Israel again and have pity on her ruins. Her desert will blossom like Eden, her barren wilderness like the garden of the Lord. Joy and gladness will be found there. Songs of thanksgiving will fill the air." [Isaiah 51:3](https://www.bible.com/bible/116/ISA.51.3)
+- "These were the family leaders of the Levites: Hashabiah, Sherebiah, Jeshua, Binnui,* Kadmiel, and other associates, who stood opposite them during the ceremonies of praise and thanksgiving, one section responding to the other, as commanded by David, the man of God." [Nehemiah 12:24](https://www.bible.com/bible/116/NEH.12.24)
+- "And from all around Jerusalem, from the towns of Judah and Benjamin, from the western foothills* and the hill country and the Negev, the people will come with their burnt offerings and sacrifices. They will bring their grain offerings, frankincense, and thanksgiving offerings to the Lord’s Temple." [Jeremiah 17:26](https://www.bible.com/bible/116/JER.17.26)
+- "For the dedication of the new wall of Jerusalem, the Levites throughout the land were asked to come to Jerusalem to assist in the ceremonies. They were to take part in the joyous occasion with their songs of thanksgiving and with the music of cymbals, harps, and lwe must yres." [Nehemiah 12:27](https://www.bible.com/bible/116/NEH.12.27)
+- "Don’t worry about anything; instead, pray about everything. Tell God what you need, and thank him for all he has done." [Philippians 4:6](https://www.bible.com/bible/116/PHP.4.6)
+- "the sounds of joy and laughter. The joyful voices of bridegrooms and brides will be heard again, along with the joyous songs of people bringing thanksgiving offerings to the Lord. They will sing, ‘Give thanks to the Lord of Heaven’s Armies, for the Lord is good. His faithful love endures forever!’ For I will restore the prosperity of this land to what it was in the past, says the Lord." [Jeremiah 33:11](https://www.bible.com/bible/116/JER.33.11)
+- "Let us come to him with thanksgiving. Let us sing psalms of praise to him." [Psalm 95:2](https://www.bible.com/bible/116/PSA.95.2)
+- "Devote yourselves to prayer with an alert mind and a thankful heart." [Colossians 4:2](https://www.bible.com/bible/116/COL.4.2)
+- "They will say it is wrong to be married and wrong to eat certain foods. But God created those foods to be eaten with thanks by faithful people who know the truth. Since everything God created is good, we should not reject any of it but receive it with thanks. For we know it is made acceptable* by the word of God and prayer." [1 Timothy 4:3-5](https://www.bible.com/bible/116/1TI.4.3-5)
+- "Sing out your thanks to the Lord; sing praises to our God with a harp." [Psalm 147:7](https://www.bible.com/bible/116/PSA.147.7)
+- "Yes, you will be enriched in every way so that you can always be generous. And when we take your gifts to those who need them, they will thank God." [2 Corinthians 9:11](https://www.bible.com/bible/116/2CO.9.11)
+- "I wash my hands to declare my innocence. I come to your altar, O Lord, singing a song of thanksgiving and telling of all your wonders." [Psalm 26:6-7](https://www.bible.com/bible/116/PSA.26.6-7)
+- "Let them offer sacrifices of thanksgiving and sing joyfully about his glorious acts." [Psalm 107:22](https://www.bible.com/bible/116/PSA.107.22)
+- "Let your roots grow down into him, and let your lives be built on him. Then your faith will grow strong in the truth you were taught, and you will overflow with thankfulness." [Colossians 2:7](https://www.bible.com/bible/116/COL.2.7)
+- "Make thankfulness your sacrifice to God, and keep the vows you made to the Most High." [Psalm 50:14](https://www.bible.com/bible/116/PSA.50.14)
+- "Obscene stories, foolish talk, and coarse jokes—these are not for you. Instead, let there be thankfulness to God." [Ephesians 5:4](https://www.bible.com/bible/116/EPH.5.4)
+
+# Context and Lessons of Thanksgiving Verses
+- [Psalm 69:30-33](https://www.bible.com/bible/116/PSA.69.30-33)
+	- Context
+		- This psalm is titled "A Plea for Rescue from Deep Waters". David is mourning his circumstances, as he is exhausted and without allies. However, he has not given up hope. He intercedes for himself with the Lord, asking the Lord to deliver him from his troubles. He declares that when the Lord rescues him, he will praise him and give thanks.
+	- Lessons
+		- The Lord delights in a thankful heart more than in sacrifices. ([Psalm 51:16-17](https://www.bible.com/bible/116/PSA.51.16-17))
+		- When a humble person sees the Lord at work, their response is to thank the Lord. ([Isaiah 12:4](https://www.bible.com/bible/116/ISA.12.4))
+- [Leviticus 7:11-13](https://www.bible.com/bible/116/LEV.7.11-13)
+- [Leviticus 22:29](https://www.bible.com/bible/116/LEV.22.29)
+- [2 Chronicles 29:31](https://www.bible.com/bible/116/2CH.29.31)
+	- Context
+		- Hezekiah was crowned king and the first thing he did was to repair and reopen the temple. After he reopened it, he rededicated it and had the people offer a sin offering, and the Levites worshiped before the Lord. Then he had them offer thanksgiving offerings.
+	- Lessons
+		- Thanking the Lord is a spiritual sacrifice. ([Ephesians 5:18-19](https://www.bible.com/bible/116/EPH.5.18-19))
+		- When reconciling to the Lord, give thanks, for His grace has won you back.
+- [Psalm 100](https://www.bible.com/bible/116/PSA.100)
+	- Lessons
+		- Thanking the Lord comes from a revelation of His goodness, and the overflow of the heart.
+		- We should enter His gates with thanksgiving, and his courts with praise! Thanksgiving  and praise result from right perspective, but giving thanks even when you don't feel the revelation in the moment corrects the posture of your heart, and lifts your spiritual eyes so you can see Him rightly.
+- [1 Chronicles 16:7](https://www.bible.com/bible/116/1CH.16.7)
+	- Context
+		- David was bringing back the Ark of the Covenant to Jerusalem, and he involved all of Israel because the Lord's covenant was with all of Israel. David understood that in the presence of the Lord is Joy, and so he made the return of the Ark a joyful thing.
+	- Lessons
+		- David's song of joy and thanksgiving results from him knowing the goodness of God.
+		- We don't deserve the covenant the Lord has given us, so it is right for us to thank Him for it. ([1 Chronicles 16:15](https://www.bible.com/bible/116/1CH.16.15))
+		- The simplest reason to thank the Lord is that He is **good**. ([1 Chronicles 16:34](https://www.bible.com/bible/116/1CH.16.34))
+- [Revelation 7:12](https://www.bible.com/bible/116/REV.7.12)
+	- Context
+		- In John's revelation of Heaven, the assemblies of Heaven are gathered and give praise continually. Those who have been washed by the blood of the lambs, the elders, and the 4 living beings all praise Him continually.
+	- Lessons
+		- When we can plainly see the fullness of God, the only thing to do is worship and give thanks.
+		- Thanksgiving and honor **belong** to our God. It's not just a gift from us, it's what He deserves.
+- [Jeremiah 30:19](https://www.bible.com/bible/116/JER.30.19)
+	- Context
+		- Jeremiah speaks of when Jesus comes to rule the New Jerusalem. Everything will be as God intended from the start, and the people will have joy again.
+	- Lessons
+		- When things are as God designed (when we are in full communion with Him, when He is the only king of Israel), we can't help but thank Him.
+- [Nehemiah 12:27-47](https://www.bible.com/bible/116/NEH.12.27-47)
+	- Context
+		- The wall had been rebuilt, and it needed to be dedicated. Just like with the return of the Ark, the Levites were asked to celebrate with songs of praise and thanksgiving.
+	- Lessons
+		- Every dedication to the Lord is a time of joy. ([Nehemiah 12:43](https://www.bible.com/bible/116/NEH.12.43))
+		- Sacrifices result from joy and thanksgiving, because they are another right response in the face of what the Lord deserves ([Nehemiah 12:43](https://www.bible.com/bible/116/NEH.12.43))
+		- When their perspective had been made right through praise and thanksgiving, the people delighted in the work of the priests and Levites, and gave generously to them. ([Nehemiah 12:44-47](https://www.bible.com/bible/116/NEH.12.44-47))
+- [Psalm 28:7](https://www.bible.com/bible/116/PSA.28.7)
+	- Context
+		- David once again was in trouble and turned to the Lord.
+	- Lessons
+		- When the Lord helps us and we see His work, we cannot help but take joy in it. Thanksgiving and praise flows from the hearts of the humble. ([Psalm 69:32](https://www.bible.com/bible/116/PSA.69.32))
+		- This is what we are made for! We are made to see His works, take joy in it, and give Him thanks.
+- [2 Corinthians 4:15](https://www.bible.com/bible/116/2CO.4.15)
+	- Context
+		- Paul speaks of suffering for Christ's sake. Even though it hurts, and even though we're pressed on all sides, and even though we're faced with death, it doesn't matter. He will resurrect us, so we don't need to worry. We share in Christ's suffering.
+	- Lessons
+		- Thanksgiving gives God glory. This is simple, but huge.
+		- In response to God's grace, it only makes sense to give thanks.
+- [Isaiah 51:3](https://www.bible.com/bible/116/ISA.51.3)
+	- Context
+		- Isaiah speaks of the coming of Jesus, and is encouraging the reader to trust in the Lord.
+	- Lessons
+		- Joy and thanksgiving are right for us, just as it is right for the land to be beautiful and filled with flowers.
+- [Philippians 4:6](https://www.bible.com/bible/116/PHP.4.6)
+	- Context
+		- Paul is commanding the church at Philipi to be full of joy, and not being anxious is a requirement to be full of joy.It's made equal with 
+	- Lessons
+		- Worry and anxiety are defeated by intercession. We cannot be worried or anxious if our only desire is for the Lord's will to be fulfilled.
+		- Thanksgiving is a central part of intercession. Paul makes it equal with telling the Lord what you need.
+- [Jeremiah 33:10-11](https://www.bible.com/bible/116/JER.33.10-11)
+	- Context
+		- This is yet another time when the prophets speak of the promises of the Lord for Israel when Jesus rules on earth in Jerusalem, and all peoples of the world are reconciled to Him.
+	- Lessons
+		- Joy in the Lord, laughter, praise, and thanksgiving are what we're made for! When the Lord restores all things, we will overflow with joy, laughter, praise and thanksgiving.
+- [Psalm 95:1-7](https://www.bible.com/bible/116/PSA.95.1-7)
+	- Lessons
+		- It is right and good to thank the Lord for all He has done, to praise Him for everything He is, to bow down before Him, and to Listen to Him.
+		- The first step in engaging rightly with God is giving thanks.
+- [Psalm 147:7-9](https://www.bible.com/bible/116/PSA.147.7-9)
+	- Lessons
+		- Praise the Lord for His provision! He causes the earth to live and bear fruit, and provides for all its animals. Surely He will also provide for you. ([Matthew 6:26](https://www.bible.com/bible/116/MAT.6.26))
